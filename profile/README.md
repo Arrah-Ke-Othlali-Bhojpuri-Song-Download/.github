@@ -1,8 +1,8 @@
 # Arrah Ke Othlali Mp3 Song Download  
 
-**▶DOWNLOAD** 👉 [[Arrah Ke Othlali 320kbps](https://pagalworld.com.in/ara-ke-othlali-pawan-singh-kalpana-patowary-mp3-song-download.html)](#)  
+**▶DOWNLOAD** 👉 [[Arrah Ke Othlali 320kbps]](#)  
 
-**▶ DOWNLOAD** 👉 [[Arrah Ke Othlali 128kbps](https://pagalworld.com.in/ara-ke-othlali-pawan-singh-kalpana-patowary-mp3-song-download.html)](#)  
+**▶ DOWNLOAD** 👉 [[Arrah Ke Othlali 128kbps]](#)  
 
 Arrah Ke Othlali Mp3 Song Download, Arrah Ke Othlali Bhojpuri Mp3 Song Download Sung by Pawan Singh, Kalpana Patowary And  Music Rajat Nagpal, Arrah Ke Othlali Pawan Singh Mp3 Song Download High Quality 320kbps 128kbps One PagalWorld.
 
